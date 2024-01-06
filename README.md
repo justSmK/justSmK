@@ -1,5 +1,7 @@
 ### Hi there ❤️‍🔥
 
+[Telegram](t.me/just_SmK)
+
 <!--
 **SmK1ng/SmK1ng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
